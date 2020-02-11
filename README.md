@@ -2,4 +2,4 @@
 
 hi plants
 
-this is just like facebook O.o
+this is the new facebook O.o
